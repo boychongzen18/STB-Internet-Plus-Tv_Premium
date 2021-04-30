@@ -1,10 +1,10 @@
 # STB TV Box HG680 & Fw 𝗥𝗢𝗚 𝗣𝗥𝗘𝗠𝗜𝗨𝗠
 
-# Support TV Tabung, Led & LCD
+# Support TV Tabung, LED & LCD
 
 # Author : Boychongzen aka Xroot
 
-# STB TV Tabung
+# STB Internet & TV Tabung
 
 ![be](https://raw.githubusercontent.com/boychongzen18/STB/main/internet.jpg) 
 
