@@ -17,6 +17,10 @@
 
 ![be](https://raw.githubusercontent.com/boychongzen18/STB/main/stb_tv_tabung.jpg) 
 
+LIVE STREAMING KHUSUS MOTOGP
+https://www.transtv.co.id/live/trans7
+https://20.detik.com/live/trans-7
+
 
 Youtube       : https://www.youtube.com/channel/UCKdOPQ_iIXcqK17PB_2RMdQ
 
