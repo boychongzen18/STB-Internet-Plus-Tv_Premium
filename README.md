@@ -19,7 +19,12 @@
 
 LIVE STREAMING KHUSUS MOTOGP
 https://www.transtv.co.id/live/trans7
+
 https://20.detik.com/live/trans-7
+
+LIVE STREAMING KHUSUS SCTV
+
+https://m.vidio.com/watch/6709707?utm_source=youtube&utm_medium=referrer-description&utm_campaign=sctv
 
 
 Youtube       : https://www.youtube.com/channel/UCKdOPQ_iIXcqK17PB_2RMdQ
