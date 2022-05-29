@@ -20,7 +20,13 @@
 LIVE STREAMING KHUSUS MOTOGP
 https://www.transtv.co.id/live/trans7
 
+
 https://20.detik.com/live/trans-7
+
+
+https://www.cnnindonesia.com/olahraga/20220529160109-156-802425/live-streaming-trans7-motogp-italia-2022
+
+
 
 LIVE STREAMING KHUSUS SCTV
 
